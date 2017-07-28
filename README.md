@@ -1,1 +1,0 @@
-# Shuchi-Kibbcom.github.io
